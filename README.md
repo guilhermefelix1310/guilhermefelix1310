@@ -1,4 +1,0 @@
-- 👋 Hi, I’m @guilhermefelix1310
-- Estudante da UFRN
-- Curso: Engenharia elétrica
-- Amante de esportes e 
